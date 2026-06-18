@@ -6,12 +6,12 @@ NOW I WILL BE DISPLAYING MY OTHER FANDOMS AS GIFS ENJOY!!
 
 ![myfile](https://media.tenor.com/9oztywrX_loAAAAm/homestuck-rose-lalonde.webp)
 
-THIS IS WHERE MY USERNAME CAME FROM 
-
 ![myfile](https://media.tenor.com/9Y2XXDZC0ssAAAAM/yixi-butcher-vanity.gif)
 
 ![myfile](https://media.tenor.com/_CYggJEo45IAAAAm/cof-cry-of-fear.webp)
 
-AND LAST BUT NOT LEAST, THE GOATTTTT!!!!!
+UPDATING CAUSE MY FRIENDS DRAGGED ME INTO A PEAK FANDOM
+
+![myfile](https://static.wikitide.net/nullscapewiki/9/9e/Bouncing_mart.gif)_
 
 BTW DID YOU KNOW I LOVE ALIENZ :P
